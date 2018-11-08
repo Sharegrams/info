@@ -9,7 +9,7 @@ The surest protection against temptation is cowardice.
 ----------
 
 
-[      The Complete Guide to Advertising on Instagram | WordStream](https://www.wordstream.com/blog/ws/2017/11/20/instagram-advertising)
+asdasd[      The Complete Guide to Advertising on Instagram | WordStream](https://www.wordstream.com/blog/ws/2017/11/20/instagram-advertising)
 
 [More items...<http://www.facebook.com/help/1067656009937668)
 
@@ -73,7 +73,7 @@ The surest protection against temptation is cowardice.
 
 [Media Examiner](http://www.socialmediaexaminer.com/how-to-advertise-on-instagram-a-complete-instagram-ads-guide/)
 
-[Instagram Ads: The Complete Guide for Marketers - Hootsuite Blog](http://blog.hootsuite.com/instagram-ads-guide/amp/)
+as[Instagram Ads: The Complete Guide for Marketers - Hootsuite Blog](http://blog.hootsuite.com/instagram-ads-guide/amp/)
 
 [Instagram Advertising in 2018: What You Need to Know | Yotpo](http://www.yotpo.com/blog/advertise-on-instagram/)
 
