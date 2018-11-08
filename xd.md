@@ -1,58 +1,87 @@
-##### public: yes ppc: $5 seo: 10/99
+###### public:no ppc: $  seo: 13/100
 
-## keyword :smile:
+## advertise my instagram :clown_face:
 
-
-Fortune here...
+The surest protection against temptation is cowardice.
+		-- Mark Twain
 
 
 ----------
-[Marketing and stuff - Reddit](http://www.reddit.com/r/marketing/)
 
-[The Entrepreneur's Guide to Reddit Marketing - The Content Factory](http://www.contentfac.com/a-complete-guide-to-reddit-marketing/)
 
-[Reddit Loves Reddit, Hates ...](https://www.contentfac.com/a-complete-guide-to-reddit-marketing/#Reddit-Loves-Reddit-Hates-You-And-Reddit-Marketing)
+[      The Complete Guide to Advertising on Instagram | WordStream](https://www.wordstream.com/blog/ws/2017/11/20/instagram-advertising)
 
-[The Marketer's Guide to Reddit - Neil Patel](http://neilpatel.com/blog/reddit-marketing-guide/amp/)
+[More items...<http://www.facebook.com/help/1067656009937668)
 
-[11 Insanely Actionable Steps To Get More Reddit Traffic - Startupbros](http://startupbros.com/reddit-marketing/)
+[      How do I run ads directly from Instagram? | Facebook Help ...](https://www.facebook.com/help/1067656009937668)
 
-[How to Use Reddit in Your Content Marketing Strategy @DreamGrow 2018](http://www.dreamgrow.com/reddit-strategy-tips/amp/)
+[More items...](https://www.wordstream.com/blog/ws/2016/10/19/get-more-instagram-followers)
 
-[Top 25 Creative Reddit Marketing Ideas for 2018 - Fit Small Business](http://fitsmallbusiness.com/reddit-marketing-ideas/)
+[      11 Ways to Get More (Real!) Instagram Followers | WordStream](https://www.wordstream.com/blog/ws/2016/10/19/get-more-instagram-followers)
 
-[3 Tips for Creating an Effective Marketing Strategy for Reddit – Adweek](http://www.adweek.com/brand-marketing/3-tips-for-creating-an-effective-marketing-strategy-for-reddit/amp/)
+[      How Much Does it Cost to Advertise on Instagram? | ThriveHive](https://thrivehive.com/how-much-does-it-cost-to-advertise-on-instagram/)
 
-[      Explorer](https://socialmediaexplorer.com/content-sections/tools-and-tips/how-to-use-reddit-drive-traffic-to-your-site/)
+[      How to Use Instagram to Promote Your Brand and Drive Sales](https://neilpatel.com/blog/drive-sales-with-instagram/)
 
-[      How much does it cost to advertise on Reddit? - Quora](https://www.quora.com/How-much-does-it-cost-to-advertise-on-Reddit)
+[12 Ways to Successfully Promote Your Instagram | Sprout Social](http://sproutsocial.com/insights/promote-your-instagram/amp/)
 
-[More items...](https://upcity.com/blog/how-to-create-an-account-and-recommend-content-on-reddit/)
+[Advertising on Instagram | Instagram for Business](http://business.instagram.com/advertising/)
 
-[      How to Create an Account and Recommend Content on Reddit | ...](https://upcity.com/blog/how-to-create-an-account-and-recommend-content-on-reddit/)
+[How to Gain a Massive Following on Instagram - Buffer Blog](http://blog.bufferapp.com/instagram-growth/amp)
 
-[      How to Start a Thread on Reddit | Chron.com](https://smallbusiness.chron.com/start-thread-reddit-63327.html)
+[LEOGRAM - Instagram Promotion Service](http://leogram.com/)
 
-[Reddit for Marketing: A Complete Guide | MarketingProfs](http://m.marketingprofs.com/articles/2018/39773/the-complete-guide-to-reddit-marketing)
+[Log in<http://leogram.com/en/login)
 
-[Marketing Institute](http://contentmarketinginstitute.com/2018/05/reddit-marketing/)
+[Sign up<http://leogram.com/en/reg)
 
-[Grow and Convert](http://growandconvert.com/marketing/reddit-marketing/)
+[Six Tips to Grow Your Instagram Audience Quickly - Maximize Social Business](http://maximizesocialbusiness.com/6-tips-grow-instagram-audience-quickly-12917/amp/)
 
-[The Complete Guide To Marketing Channels | Reddit - Oberlo](http://www.oberlo.com/ebooks/marketing-channels-guide/reddit/amp)
+[   ](http://m.youtube.com/watch?v=u5_6Oi9iWIQ)
 
-[How to Master Reddit Marketing in 2018 - Oberlo Ebook](http://www.oberlo.com/ebooks/get-sales-dropshipping/reddit/amp)
+[   ](http://m.youtube.com/watch?v=QM_uozmzQ9Y)
 
-[Quick Guide on How to Get Started with Marketing on Reddit - Robert Katai](http://robertkatai.com/marketing-on-reddit/amp/)
+[   ](http://m.youtube.com/watch?v=_Oo1acZcL0I)
 
-[25 Best Marketing Subreddits (That You Should Join Today) - 99signals](http://www.99signals.com/best-subreddits-marketing/)
+[   ](http://m.youtube.com/watch?v=UHVHchXQR5c)
 
-[How to Reach Far and Wide with Clever Reddit Marketing | Zazzle Media](http://www.zazzlemedia.co.uk/blog/successful-reddit-marketing/)
+[   ](http://m.youtube.com/watch?v=hhE-PohQrhA)
 
-[Reddit surpasses 1 billion monthly video views - Marketing Land](http://marketingland.com/reddit-surpasses-1-billion-monthly-video-views-249354/amp)
+[   ](http://m.youtube.com/watch?v=o5ssOJHsjtg)
 
-[ERE.net](http://www.ere.net/reddit-recruitment-advertising/)
+[   ](http://www.entrepreneur.com/video/317372)
 
-[Reddit Marketing: Start Getting Traffic Today | Udemy](http://www.udemy.com/reddit-marketing/)
+[   ](http://m.youtube.com/watch?v=AQrFMMccsN8)
 
-[10 Online Marketing Tools You Need When Starting a Business](http://neilpatel.com/blog/10-online-marketing-tools-you-need-when-starting-a-business/amp/)
+[   ](http://m.youtube.com/watch?v=ZR1oL3hGB7k)
+
+[   ](http://m.youtube.com/watch?v=zmldGWKIQAE)
+
+[Is there any way to promote my Instagram? - Quora](http://www.quora.com/Is-there-any-way-to-promote-my-Instagram)
+
+[How to promote my Instagram page - Quora](http://www.quora.com/How-can-I-promote-my-Instagram-page)
+
+[How do I run ads directly from Instagram? | Facebook Help Center | Facebook](http://m.facebook.com/help/1067656009937668)
+
+[Help Center | Facebook](http://www.facebook.com/business/help/286603491434313)
+
+[The Complete Guide to Advertising on Instagram | WordStream](http://www.wordstream.com/blog/ws/2017/11/20/instagram-advertising)
+
+[How to grow and monetize your Instagram account - TNW](http://thenextweb.com/socialmedia/2016/01/12/how-to-grow-and-monetize-your-instagram-account/?amp=1)
+
+[How to Promote Your Instagram Page – The Creative Spot](http://www.creativespot.com/how-to-promote-your-instagram-page/)
+
+[Media Examiner](http://www.socialmediaexaminer.com/how-to-advertise-on-instagram-a-complete-instagram-ads-guide/)
+
+[Instagram Ads: The Complete Guide for Marketers - Hootsuite Blog](http://blog.hootsuite.com/instagram-ads-guide/amp/)
+
+[Instagram Advertising in 2018: What You Need to Know | Yotpo](http://www.yotpo.com/blog/advertise-on-instagram/)
+
+[Instagram Ads: The Complete 2018 Guide to Advertising on Instagram - Shopify](http://www.shopify.ca/blog/113202181-the-beginners-guide-to-advertising-on-instagram)
+
+[Jump to Link your Instagram account to your Facebook page](https://www.shopify.ca/blog/113202181-the-beginners-guide-to-advertising-on-instagram#one)
+
+[Quick Sprout](http://www.quicksprout.com/2017/11/06/the-ultimate-guide-for-using-instagram-story-to-promote-your-business/)
+
+[How to Advertise Your Business on Instagram | ThriveHive](http://thrivehive.com/how-to-advertise-a-small-business-on-instagram/)
+
