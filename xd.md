@@ -1,6 +1,6 @@
 ##### public: yes ppc: $5 seo: 10/99
 
-## keyword 
+## keyword :smile:
 
 
 Fortune here...
