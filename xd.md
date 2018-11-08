@@ -11,9 +11,7 @@ literature from 45 BC, making it over 2000 years old. Richard McClintock, a Lati
 Finibus Bonorum et Malorum" (The Extremes of Good and Evil) by Cicero, written in 45 BC. This book is a treatise on the theory of ethics, very popular during the Renaissance. The first line of Lorem Ipsum, "Lorem ipsum dolor sit amet..", comes from a line in section 1.10.32.
 
 [Marketing and stuff - Reddit](http://www.reddit.com/r/marketing/)
-
 [Marketing and stuff - Reddit](http://www.reddit.com/r/marketing/)
-
 [Marketing and stuff - Reddit](http://www.reddit.com/r/marketing/)
 
  
